@@ -24,7 +24,7 @@ Subject in academics:
 - Computer
 - Araling Panlipunan
 
-==Hobby/Past time==
+Hobby/Past time:
 - Read books that interest me
 - Online games
 - Ball sports
